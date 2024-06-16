@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @monsa24
+- 👀 I’m interested in learning new things
+- 🌱 I’m currently learning how to use GitHub
+- 💞️ I’m looking to collaborate on anything realted to my career
+- ⚡ Fun fact: I dream of having a very big house to adopt many puppies <3
